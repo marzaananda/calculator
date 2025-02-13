@@ -1,0 +1,1 @@
+maaf bang masih pemula 
